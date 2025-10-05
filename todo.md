@@ -19,6 +19,7 @@ Get Leon County library card sorted.
 Get AirPod buds from Best Buy.
 Mention snoring and possible fixes, as well as lab results, to Dr. Soleimani on Monday.
 Make a prototype for Wayne's code to upload music PDFs for OMR to MIDI.
+Locations and logistics for Thanksgiving Trip
 
 ## Jazz Techniques Faculty Dates
 Kevin Jones - Oct. 7th
