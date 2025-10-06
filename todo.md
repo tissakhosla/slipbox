@@ -32,7 +32,7 @@ How High the Moon - Cassandra
 Kevin Jones - Oct. 7th
 Rodney Jordan - Oct. 9th
 Leon Anderson - Oct. 14th ?
-Dave Detweiler - Oct. 16th ?
+Dave Detweiler - Oct. 16th
 
 ## The Moon Oct 20
 Fables of Faubus - Complete
