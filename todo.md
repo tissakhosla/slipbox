@@ -22,29 +22,29 @@
  - compile music of my greatest hits!
 
 ## Combo
-Caravan - Arrangement
-Rocks in My Bed - Memorize arrangment
-Ah-Leu-Cha - Shed with people coming in individually and to get band unity
-What is this Thing/Hot House - Rubato Intro possibly outro too.
-How High the Moon - Cassandra
+Caravan - Arrangement  
+Rocks in My Bed - Memorize arrangment  
+Ah-Leu-Cha - Shed with people coming in individually and to get band unity  
+What is this Thing/Hot House - Rubato Intro possibly outro too.  
+How High the Moon - Cassandra  
 
 ## Jazz Techniques Faculty Dates
-Kevin Jones - Oct. 7th
-Rodney Jordan - Oct. 9th
-Leon Anderson - Oct. 14th ?
-Dave Detweiler - Oct. 16th
+Kevin Jones - Oct. 7th  
+Rodney Jordan - Oct. 9th  
+Leon Anderson - Oct. 14th ?  
+Dave Detweiler - Oct. 16th  
 
 ## The Moon Oct 20
-Fables of Faubus - Complete
-Freedom Armor - Complete
-Mound Bayou - XML -> Sibelius -> Fsu Faculty
-Call to Action! - XML -> Sibelius -> FSU Faculty
-Better Get Hit in Your Soul - XML -> Sibelius -> FSU Faculty
-Boogie Stop - XML -> Sibelius -> FSU Faculty
-Eighty-One - Tim?
-Red Clay
-Sister Cheryl
-Byrdlike
-Eye of the Hurricane
-Our Time
-I X Love
+Fables of Faubus - Complete  
+Freedom Armor - Complete  
+Mound Bayou - XML -> Sibelius -> Fsu Faculty  
+Call to Action! - XML -> Sibelius -> FSU Faculty  
+Better Get Hit in Your Soul - XML -> Sibelius -> FSU Faculty  
+Boogie Stop - XML -> Sibelius -> FSU Faculty  
+Eighty-One - Tim?  
+Red Clay  
+Sister Cheryl  
+Byrdlike  
+Eye of the Hurricane  
+Our Time  
+I X Love  
