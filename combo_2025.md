@@ -1,10 +1,13 @@
 # Combo Fall 2025
 ## 1. Caravan - Play the Chart
+    1. Tenor Solo + More
 ## 2. Rocks in My Bed
-    1. rhythm section and vocals
-    2. vocals and guitar
-    3. vocals and violin (trumpet)
-    4. etc.
+    Intro - Bass, Guitar, Brushes, Piano
+    1. piano fills
+    2. guitar fills, piano comps
+    3. trumpet fills, guitar quarter notes, piano comps, sticks last 2 bars
+    4. Tenor solo - collective improv?
+    5. Intro on first 4 bars - breaks
 ## 3. Ah-Leu-Cha
     A - Bass and Guitar
       - Drums
