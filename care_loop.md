@@ -44,7 +44,7 @@
 1. Empty dishwasher if clean  
 1. Put away clean dishes  
 1. Hand wash knives or special dishes  
-1. Load dishwasher / save rinse water for plants  
+1. Load and run dishwasher / save rinse water for plants  
 1. Wash Geordi’s food mat  
 1. Water herbs (daily) and plants (Thursday)  
 1. Check backyard for Geordi poop  
